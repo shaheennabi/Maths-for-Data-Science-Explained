@@ -1,3 +1,3 @@
 # Maths-for-Data-Science-Explained
 
-starting soon..
+I update this often here ....
